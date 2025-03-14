@@ -1,4 +1,4 @@
-# zaurus44k
+# zaurus44k 🦖
 
 ## About Me
 
